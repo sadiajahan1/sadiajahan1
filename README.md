@@ -25,3 +25,10 @@ LGBTQ+ CLUB
 __________________________________________________________________________>
 REWARDS ->
 ATTENDANCE & HONOR ROLL REWARDS 
+
+
+
+
+_________________________________________________________________________________________________>
+Birth Place: Dhaka Bangladesh
+Currently Living: United States Of America
